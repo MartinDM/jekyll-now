@@ -9,26 +9,15 @@ Coming to the end of 2019; it's a time we might reflect on the year past. A retr
 
 For me, it was a year of varied, new experiences in work and relationships, a year in which some of the hardest circumstances have brought me face to face with myself, to emerge not less afraid, but only with slightly more bravery and trust in myself to engage with the obstacle, an exercise in testing stoic behaviours.
 
-It's by engaging with challenges, lack of certainty, the complexity of other egos, that we can control their power to influence our emotions; to shake us from our most stoic virtues. It's here where we can see in sharp relief, our ability to adapt, thrive even; for the same challenges that once inspired a sinking dread, might just precipitate the emergence of a better version of ourselves.
-
-Armed with our moral code and stoic virtues, we can dare to see through the self-talk and beliefs we had about ourselves; confidently engaging with challenges as our teacher, making right actions, yet never straying into delusions of knowing anything much at all. To my mind, there may not even be another way to overcome challenges that find us; to quote Marcus Aurelius:
-
-> The impediment to action advances action. What stands in the way becomes the way.   
-> *Marcus Aurelius, Meditations*
-
-Our learned beliefs can keep us tethered to past versions of ourselves, and can be overcome if only we allow ourselves to be merely braver (distinct from waiting for certainty) and discover how true those beliefs really are.
-
-It's in showing us these things that Journaling can be a key part of our self-care. It allows us to discover patterns within ourselves otherwise lost in the fleeting encounters during the day, and to audit our values and reflect on behaviours, hiding nothing from ourselves.
+It's in reflecting on these events that Journaling can be a key part of our self-care. It allows us to discover patterns within ourselves otherwise lost in the fleeting encounters during the day, and to audit our values and reflect on behaviours, hiding nothing from ourselves.
 
 As part of my journaling practice, I decided to do a broader-view Annual Review, inspired by [James Clear](https://jamesclear.com/annual-review) and his book [Atomic Habits](https://amzn.to/2F2WKij).
 
 As with a daily journaling practice, it's helpful to have a structure to follow to keep reflections focused and useful to allow easy re-reading throughout the year. and what I wish to focus on.
 
-As such, I have shared below my own journal 'template' for conducting a personal Annual Review. My hope is that some of these cues provide just the right jumping-off point for your own meaningful ideas to come forth in abundance, (or use it as-is!), to reflect on your year.
-
 ## Template for a personal Annual Review
 
-So, here's mine; a structure I came up with to serve as a guide to reflect on the year. My hope is that you might find some inspiration in these cues for your own journaling.
+I have shared below my own journal 'template' for conducting a personal Annual Review. My hope is that some of these cues provide just the right jumping-off point for your own meaningful ideas to come forth in abundance, (or use it as-is!), to reflect on your year.
 
 <hr />
 
@@ -58,12 +47,25 @@ So, here's mine; a structure I came up with to serve as a guide to reflect on th
 
 <hr />
 
+## Challenges as our teacher
+
+It's by engaging with unexpected challenges, lack of certainty, the complexity of other egos, that we can control their power to influence our emotions; to threaten our most stoic virtues. It's here though, where we can see in sharp relief, our own ability to adapt, thrive even; for the same challenges that once inspired a sinking dread, might just precipitate the emergence of a better version of ourselves.
+
+Armed with our moral code and stoic virtues, we can dare to ignore the self-talk and beliefs we had about ourselves; confidently engaging with challenges as our teacher - making right actions, yet never straying into delusions of knowing anything much at all.
+
+I'd even suggest there may not even *be* another way to overcome challenges that find us than; to quote Marcus Aurelius:
+
+> The impediment to action advances action. What stands in the way becomes the way.   
+> *- Marcus Aurelius, Meditations*
+
+Our learned beliefs can keep us tethered to past versions of ourselves, yet can be overcome if only we allow ourselves to merely be braver distinct from waiting for certainty to make us less anxious.
+
 ## Just starting...
 
 It can be difficult to start journaling; questions about time of day, frequency, what to even write, can thwart our motivation. But I’d advocate for blind ‘doing’ in this case - just start, and take the lead from what you find valuable and the insight you'll start to gain about your very nature.
 
 > Waste no time arguing what a good man should be. Be one  
-> Marcus Aurelius, Meditations
+> - Marcus Aurelius, Meditations
 
 In doing a personal Annual Review, it can be difficult, even daunting to know what to write about for the whole year! I certainly found this and enjoy reading what others might include; I mean, can we really remember what we got up to at the start of the year, especially if not armed with a years' reflections to draw upon!
 
