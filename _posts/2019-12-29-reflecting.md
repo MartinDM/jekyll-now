@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Reflecting on 2019: A personal Annual Review template
+title: Reflecting on 2019 - A personal Annual Review template
 tags: stocisim, journaling, reflection
 category: journaling
 ---
