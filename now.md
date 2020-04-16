@@ -13,7 +13,7 @@ Day-to-day: Snr Front-end Engineer at Kainos in Birmingham.
 
 ## Latest project  
 
-Currently working in collaboration with a large London-based agency, integrated into their in-house development team. We're working on and evolving a business critical SaaS product built in Angular, relied upon by several large brands to manage marketing activiites. Adapting together amid the UK lockdown where the whole team is now remote.
+Currently working in collaboration with a large London-based agency, integrated into their in-house development team. We're working on and evolving a business critical SaaS product built in Angular, relied upon by several large brands to manage marketing activites. Adapting together amid the UK lockdown where the whole team is now remote.
 
 #### Last project 
 Previously with Kainos, I was working with Cambridge-based Telensa, building a front-end for their [Urban Data Project](https://urbandataproject.org) subscriber platform, creating an Angular data-visualisation application.
