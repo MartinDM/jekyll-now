@@ -1,11 +1,9 @@
 ---
 layout: post
-title: On turning thirty-four; recounting some things I have leaned
+title: On turning thirty-four; 34 lessons and ideas
 tags: stocisim, life, reflection
 category: life, lessons
 ---
-
-## Turning thirty-four
 
 Let's recognise there's little more trite than for twenty/thirty-somethings to think that on each advance in years it's incumbent upon them to impart some *Definitely-new* wisdom on the world; years during a relatively prosperous moment in history, I could have acquired any measure of wisdom.
 
@@ -33,32 +31,32 @@ It's impossible to be around for even this modest amount of time without encount
 
 9. Taking responsibility means recognising when we need help, and seek this from the right source. We can select *Advisors*; those whose opinion we value and whom we trust. Remember people will seldom volunteer the advice we most need, and we are wise to listen to advice from our Advisors!
 
-7. Most people don't have any more of an idea in any given situation than you do. Recognising this for the first time is frightening and marks becoming an adult. We must develop our moral code to guide our *own* judgements and decisions, else we can't be at peace.
+10. Most people don't have any more of an idea in any given situation than you do. Recognising this for the first time is frightening and marks becoming an adult. We must develop our moral code to guide our *own* judgements and decisions, else we can't be at peace.
 
-8. Related, is the idea that we delegate personal authority and *permission* to others at the peril of our own agency and ownership of our own decisions. We should seek advice (see #6), but the more we rely on others, the more we disempower ourselves and our ability to stand by our value system.
+11. Related, is the idea that we delegate personal authority and *permission* to others at the peril of our own agency and ownership of our own decisions. We should seek advice (see #6), but the more we rely on others, the more we disempower ourselves and our ability to stand by our value system.
 
-9. Be nice to everyone on the way up; you'll see them on the way down. You will come down.
+12. Be nice to everyone on the way up; you'll see them on the way down. You will come down.
 
-10. What you eat is one of the most powerful levers we have on almost every other aspect of your goals in life. Habituate it to automate it towards what will support you.
+13. What you eat is one of the most powerful levers we have on almost every other aspect of your goals in life. Habituate it to automate it towards what will support you.
 
-11. We worry inordinately about what other people think of us, until we realise how seldom we enter into their thoughts; less actively invite ill will. This is freeing to realise. We are each already about as much as we can handle. Those who matter don't care...
+14. We worry inordinately about what other people think of us, until we realise how seldom we enter into their thoughts; less actively invite ill will. This is freeing to realise. We are each already about as much as we can handle. Those who matter don't care...
 
-12. Reflect often on what matters to you and check you're living in alignment with your values. Things get lost in life, so we need to check in frequently to avoid longer term resentment, or worse, willful ignorance.
+15. Reflect often on what matters to you and check you're living in alignment with your values. Things get lost in life, so we need to check in frequently to avoid longer term resentment, or worse, willful ignorance.
 
-13. Time is our most valuable, non-renewable resource, yet is the first we give away. Each thing we say yes to, is to say no to something else.
+16. Time is our most valuable, non-renewable resource, yet is the first we give away. Each thing we say yes to, is to say no to something else.
 
-14. The most powerful way to connect with someone is to go first. Most people are guarded, which stands in the way of true connection. Give them permission, show vulnerability, and go first.
+17. The most powerful way to connect with someone is to go first. Most people are guarded, which stands in the way of true connection. Give them permission, show vulnerability, and go first.
 
-15. We each seek a troop; a tribe. Be deliberate in choosing and reviewing who makes it into this circle, and that they are there to support you. We we develop it will become necessary to change who your tribe is.
+18. We each seek a troop; a tribe. Be deliberate in choosing and reviewing who makes it into this circle, and that they are there to support you. We we develop it will become necessary to change who your tribe is.
 
-16. Undertake voluntary hardship said stoic Epictetus; fasting, sleeping on the floor, a walk in the cold, a cold shower. This prevents us holding on to and regarding comfort.
+19. Undertake voluntary hardship said stoic Epictetus; fasting, sleeping on the floor, a walk in the cold, a cold shower. This prevents us holding on to and regarding comfort.
 Seneca too speaks about *negative visualisation*; to imagine at frequent intervals that things will soon not be as they are and that we will one day have to be courageous. This allows us to enjoy the temporary things we have, but know in ourselves we do not require them.
 
-17. In minimalism, the goal is to not have the least number of things, but the optimal number of things. 
+1.  In minimalism, the goal is to not have the least number of things, but the optimal number of things. 
 
-18. Don't expect all of the information for most of life's decisions. It's generally the exception. Learn instead the courage to act and make mistakes, as inaction itself has a cost.
+2.  Don't expect all of the information for most of life's decisions. It's generally the exception. Learn instead the courage to act and make mistakes, as inaction itself has a cost.
 
-32. We don't rise to the level of our goals. We fall to the level of our systems - James Clear.
+3.  We don't rise to the level of our goals. We fall to the level of our systems - James Clear.
 In trying to anything, don't focus on the outcome; it's the system that will get us there, because we sure as hell are not relying on ever-present motivation alone to get us there.
 
 19. Unplug frequently. Spend quality time with yourself to understand yourself more fully.
