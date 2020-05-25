@@ -21,21 +21,19 @@ It's impossible to be around for even this modest amount of time without encount
 
 4. If what you're cultivating is against *accepted advice*, culturally-normalised behaviour, or *'wisdom'*, you can be sure you're on the right lines to success; if it was easy or clear, they'd all be doing it!
 
-5. We are what we (repeatedly) pay attention to. Having control over attention now is to control our future results. 
+5. We are what we (repeatedly) pay attention to. Having control over attention *now* is to control our future results. 
 
-6. We are what we (repeatedly) pay attention to. Having control over attention *now* is to control our future results. 
+6. Life is frantic; and as long as it involves interaction with others, does not afford us the time we need to parse the input from others; to *unpack* the desires it awakens in us to understand ourselves better by our reflection in others; to ask just what *did* we think of that? Making time to do that reflective work then becomes important if we are to better understand ourselves. We shouldn't underestimate the degree to which we *might not* fully understand ourselves from our otherwise limited perspective. 
 
-7. Life is frantic; and as long as it involves interaction with others, does not afford us the time we need to parse the input from others; to *unpack* the desires it awakens in us to understand ourselves better by our reflection in others; to ask just what *did* we think of that? Making time to do that reflective work then becomes important if we are to better understand ourselves. We shouldn't underestimate the degree to which we *might not* fully understand ourselves from our otherwise limited perspective. 
+7. The 'Chimp' in us needs to be acknowledged if we are to tame it and temper its effect on our life and relationships. The Chimp will prevent us taking action on ambition, will insist on success and happiness in rigid terms. The Chimp will seek to reframe situations as personal attack, if we unknowingly allow it to respond first. Understand and arrest the Chimp!
 
-8. The 'Chimp' in us needs to be acknowledged if we are to tame it and temper its effect on our life and relationships. The Chimp will prevent us taking action on ambition, will insist on success and happiness in rigid terms. The Chimp will seek to reframe situations as personal attack, if we unknowingly allow it to respond first. Understand and arrest the Chimp!
+8. Taking responsibility means recognising when we need help, and seek this from the right source. We can select *Advisors*; those whose opinion we value and whom we trust. Remember people will seldom volunteer the advice we most need, and we are wise to listen to advice from our Advisors!
 
-9. Taking responsibility means recognising when we need help, and seek this from the right source. We can select *Advisors*; those whose opinion we value and whom we trust. Remember people will seldom volunteer the advice we most need, and we are wise to listen to advice from our Advisors!
+9.  Most people don't have any more of an idea in any given situation than you do. Recognising this for the first time is frightening and marks becoming an adult. We must develop our moral code and bravery to guide our *own* judgements and decisions, else we can't be at peace.
 
-10. Most people don't have any more of an idea in any given situation than you do. Recognising this for the first time is frightening and marks becoming an adult. We must develop our moral code to guide our *own* judgements and decisions, else we can't be at peace.
+10. Related, is the idea that we delegate personal authority and *permission* to others at the peril of our own agency and ownership of our own decisions. We should seek advice (see #6), but the more we rely on others, the more we disempower ourselves and our ability to stand by our value system.
 
-11. Related, is the idea that we delegate personal authority and *permission* to others at the peril of our own agency and ownership of our own decisions. We should seek advice (see #6), but the more we rely on others, the more we disempower ourselves and our ability to stand by our value system.
-
-12. Be nice to everyone on the way up; you'll see them on the way down. You will come down.
+11. Be nice to everyone on the way up; you'll see them on the way down. You will come down.
 
 13. What you eat is one of the most powerful levers we have on almost every other aspect of your goals in life. Habituate it to automate it towards what will support you.
 
@@ -52,7 +50,7 @@ It's impossible to be around for even this modest amount of time without encount
 19. Undertake voluntary hardship said stoic Epictetus; fasting, sleeping on the floor, a walk in the cold, a cold shower. This prevents us holding on to and regarding comfort.
 Seneca too speaks about *negative visualisation*; to imagine at frequent intervals that things will soon not be as they are and that we will one day have to be courageous. This allows us to enjoy the temporary things we have, but know in ourselves we do not require them.
 
-1.  In minimalism, the goal is to not have the least number of things, but the optimal number of things. 
+1.  In minimalism, the goal is to not have the most or least number of things, but the optimal number of things. 
 
 2.  Don't expect all of the information for most of life's decisions. It's generally the exception. Learn instead the courage to act and make mistakes, as inaction itself has a cost.
 
